@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/00-ani-00](https://github.com/00-ani-00)
 
-- 📫 How to reach me **aniketlagad6@gmail.com**
+- 📫 How to reach me **lagadaniket@outlook.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
